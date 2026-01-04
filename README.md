@@ -1,5 +1,6 @@
 ## Loading . . . .
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vwowgyb6dokv7our3yoilpc22a&cover_image=true&theme=spotify-embed&show_offline=true&background_color=262626&interchange=true&profanity=false&bar_color=69205e&bar_color_cover=true&mode=dark)](https://spotify-github-profile.kittinanx.com/api/view?uid=31vwowgyb6dokv7our3yoilpc22a&redirect=true) 
+<img width="736" height="981" alt="image" src="https://github.com/user-attachments/assets/1bafda1f-d445-4aba-a702-c8fe7875fe10" />
 
 <!--
 **FrozenDebt-3njoyer/FrozenDebt-3njoyer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
