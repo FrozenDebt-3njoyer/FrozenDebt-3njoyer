@@ -57,5 +57,7 @@ Roblox: Galaxyamy46
 TT: xyzz.of..sushichii
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
-<img width="735" height="498" alt="image" src="https://github.com/user-attachments/assets/e191b3fe-a814-4351-b1ec-e3b378b1b269" />
+
+ <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/7e6ed324-378a-4284-bac9-7bc27527870c" />
+
 
