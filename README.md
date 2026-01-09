@@ -39,6 +39,11 @@ atychiphobia ~ fear of failure , (subspace reference .. heh ) atelophobia ~ fear
 
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
+<img width="757" height="211" alt="image" src="https://github.com/user-attachments/assets/f6a19bda-ee82-44a4-b07f-cb09e01abe0f" />
+
+𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
+
+
 ✦  ;  int  :  anybody can freely int with me !! as long as they aren't problematic .
 
 ✦  ;  dni  :  basic dni criteria ,  def not an excuse because I'm lazy to put everything else up , I DESLIKE People telling my past to others without my permission.  drama, rude people, p3d0ph¡les,r@c¡st people, toxic people, NSFW content, people mockning other religion's.
