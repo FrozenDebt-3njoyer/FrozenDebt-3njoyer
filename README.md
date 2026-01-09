@@ -14,6 +14,7 @@ Pansexsual / Polyamorous and Demisexsual
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
 ✦  ;  ADHD  n  possible  PTSD,  but I'm not self diagnosing , schizophrenia, attachment issues, major huge overthinker nd high anger issues.
+atychiphobia ~ fear of failure , (subspace reference .. heh ) atelophobia ~ fear of imperfection / not being good enough ,
 
 ✦  ;   I am an extremely softhearted  /  sensitive person, so I tend to easily get upset when I notice a slight change in the way you text .
 
@@ -27,7 +28,8 @@ Pansexsual / Polyamorous and Demisexsual
 
 ✦  I respect any ships, as long as it's not a darkship or something .
 
-✦  ;  #1  Subspace / iTrapped kin  /  fan  .  I relate to them both a lot, so I prefer people seeing me as them .
+✦  ;  #1  Subspace / Shuriken / iTrapped kin  /  fan  .  I relate to them both a lot, so I prefer people seeing me as them . 
+
 𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
  ⇨ Nationality: Polish+German slightly czech + Russian?
@@ -38,4 +40,8 @@ Pansexsual / Polyamorous and Demisexsual
 
 ✦  ;  dni  :  basic dni criteria ,  def not an excuse because I'm lazy to put everything else up , I DESLIKE People telling my past to others without my permission.  drama, rude people, p3d0ph¡les,r@c¡st people, toxic people, NSFW content, people mockning other religion's.
 
+𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡𓎢𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎟𓎡
 
+✦  Fandoms! : roblox args, forsaken, die of death, dandy's world, bad things, phighting, FNAF, Pupi's Midnight Munchies, Pizza Game, Mandela Catalogue, hwwhp , blocktales frozen soul , bungou stray dogs 
+
+✦ favourite characters ﹕subspace !!  (phighting! ) , chance , twotime , 1x1x1x1 (from any fandom ) , itrapped , mafioso (fs aswell ) (forsaken ) , sean ^ ihasafacelulz (roblox args ) , skittles ^ thomas (hwwhp ) ^ definitely more but i can't think .
