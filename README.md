@@ -1,4 +1,7 @@
 Imagine getting ur Fictkin + Pronouns + Gender copied by ur Ex who says " Dni(mydeadname)!" and keep pushing u away which hurts me most?? like bro get over it and just talk with me normally. try to get ur time if u wanna. i never put dni on ya soo. do u think its fair? having me blocked and etc while u could just tell me to stfu? wow! ty ichi. yeah im gonna abbadon this Github acc. ill be on new one or my alt one. Btw Ichi ty fir throwing me to trash literally even if i told u that it should never be the solution of our fight. Heres also 2 ss of what i told u!! after u saying that ur "sorry 🥺🥺" i wont call u any slurs or any bad things.
 
+
 ![Screenshot_2026-02-15-11-16-08-588_com whatsapp](https://github.com/user-attachments/assets/e3ac7533-59f9-40ab-b830-d5912f58fb2a)
 ![Screenshot_2026-02-15-11-16-00-121_com whatsapp](https://github.com/user-attachments/assets/71c5cc0e-f748-4c94-b47d-94dc9b5756de)
+
+i am so fed up w that shi.
